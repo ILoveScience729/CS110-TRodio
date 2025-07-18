@@ -1,0 +1,2 @@
+# Assignment 5 and 6 Elaboration
+These assignments were a little more difficult than the previous ones. I really enjoy learning how to do all this. I can't wait to see what else we are going to learn. 
